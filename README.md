@@ -15,6 +15,7 @@ bad news. there have been some issues going on in my life, and some of them im n
 
 
 i'm sorry for being AFK for a long long time, but this is the reason why. im coming back, soon. dont worry. 
+edit: i forgot to say this. sanic, levi, memehoovy, dom, thank you all. you guys really inspired me to start the porting stuff. you guys are the best. love you guys <3
 
 
 love you all. <3
